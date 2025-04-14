@@ -5,5 +5,9 @@
 2. ph
 
 ### Education 
+saljdfowauejorfjwaefsnv
+
 
 ### Skills 
+- dfasf
+- dfwjaiji
